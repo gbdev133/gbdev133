@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **brian.chen1583@gmail.com**
 
-- ⚡ Fun fact **I'm taking university courses at the University of British Columbia in high school**
+- ⚡ Fun fact **I play piano and violin competitively**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
