@@ -7,9 +7,9 @@
 
 - 🌱 I’m currently learning **R and Flutter**
 
-- 📝 I'm currently studying at **University of British Columbia & Hugh McRoberts Secondary School**
+- 📝 I'm currently studying at **Carnegie Mellon University**
 
-- 📫 How to reach me **brian.chen1583@gmail.com**
+- 📫 How to reach me **brianc3@andrew.cmu.edu**
 
 - ⚡ Fun fact **I have played piano for 13 years and violin for 8**
 
